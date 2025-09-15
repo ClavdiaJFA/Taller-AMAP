@@ -1,3 +1,3 @@
 # Taller-AMAP
 
-![claudiaFlores](https://github.com/user-attachments/assets/8df7e235-8d78-4c1d-82ae-39707465794a)
+![claudiaF](https://github.com/user-attachments/assets/f1c5c7ee-23b9-446e-8314-5be01287d51e)
